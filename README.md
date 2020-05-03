@@ -190,3 +190,41 @@ Published a book "Trump: Surviving at the Top" in coauthorship with Charles Leer
 
 <small>1987</small>  
 Published a book "Trump: The Art of the Deal" in coauthorship with Tony Shwartz
+
+#### EDUCATION
+
+<small>2011</small>  
+Asked friends who are prominent and wealthy alumni of the New York Military Academy to secure my academic records so they could not be seen by anyone, never!  
+
+<small>1966</small>  
+Transferred to the Wharton School of the University of Pennsylvania and graduated in May 1968 with a B.S. in economics  
+
+<small>1964</small>  
+Started studying in Fordham University  
+
+<small>1959</small>  
+Enrolled in the New York Military Academy, a private boarding school, after my parents discovered I made frequent trips into Manhattan without their permission  
+
+
+#### LANGUAGES
+🇺🇸 ENGLISH 🇷🇺 РУССКИЙ
+
+#### SKILLS 
+
+NEGOTIATING COUNTING REMODELING WRITING ACING SINGING REPORTING INCORPORATING SELLING ADVERTISING HOSTING COMPETING TWITTING PARENTING GAMBLING DATING SUING ORGANIZING FUNDING DEBATING ADVISING PRESBYTERIANING 
+
+#### CHARACTER  
+
+ADJUSTED CALM AMBITIOUS COMPETITIVE SOCIABLE DIRECT HOSTILE CARELESS IGNORANT INQUISITIVE BOLD CONFIDENT MISCHIEVOUS CHARMING INTERESTING DARING COLORFUL LAZY SELF-PROMOTING
+
+#### LIKES 😃  
+
+<a href="https://www.youtube.com/watch?v=u_aLESDql1U" rel="external">BILLIONS</a> FILET-O-FISH BIG MAC <a href="https://www.youtube.com/watch?v=RDrfE9I8_hs" rel="external">CHINA</a> QUARTER POUNDER DIET COKE TARIFFS BIBLE ARTOF DEAL PATRIOTS BEAUTIFUL MODELS GOLD REAL ESTATE WAR PROTESTERS CONSTRUCTION RUSSIANS BANKS SPORTS WOMEN MEXICO RED HAT KOREANS GOLF EVERYBODY <sup><a href="https://www.youtube.com/watch?v=0f9ysmciWUk" rel="external">[1]</a> <a href="https://www.youtube.com/watch?v=TTdmKaXAfAs">[2]</a></sup>
+
+#### DISLIKES 😞  
+
+DOGS MEDIA CNN GERMANS MEXICANS IMMIGRANTS SHITHOLE COUNTRIES UNATTRACTIVE WOMEN BLACKS SUSHI HOT-DOGS ALCOHOL FRUIT CHRISTMAS PARTIES LIBERALS 
+
+#### WANTS 🥺
+BE HEALTHY GROW A TREE BUILD TRUMP AIRPORT HAVE A TASTE DO A HARLEM SHAKE IN CONGRESS TO GOLF MORE OFTEN WIN ALL THE COURT SUITS
+
