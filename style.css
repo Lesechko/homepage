@@ -1,0 +1,11 @@
+.tag:after {
+	color: chartreuse;
+}
+
+.likes:after {
+	content: '';
+	height: 1px;
+	width: 5px;
+	color: chartreuse;
+	position: reletive;
+}
